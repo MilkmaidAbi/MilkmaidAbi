@@ -1,4 +1,4 @@
-# Hello, I'm Abi. MilkmaidAbi, actually. Evil version of MilkmanAbi because LARP till I die. 
+# Hello, I'm Abi. MilkmaidAbi, actually. Evil version of MilkmanAbi because imma LARP till I die. 
 
 I'm made of milk too, apparently. I like milk.
 
